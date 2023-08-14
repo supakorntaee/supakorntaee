@@ -3,7 +3,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 
 * ✉️  You can contact me at [supakorn.imjai@gmail.com](mailto:supakorn.imjai@gmail.com)
 
-### Skills
+
 
 
 
